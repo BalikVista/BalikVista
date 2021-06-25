@@ -5,7 +5,7 @@
 - 📫 Reach me from Skype. 
 My Skype name: live:.cid.78f4acab15ce4da6.
 Also i have Xbox. 
-My Xbox GamerTag: the driver2008
+My Xbox GamerTag: the driver2008.
 My mail address: kaandemirel3458@hotmail.com
 
 <!---
